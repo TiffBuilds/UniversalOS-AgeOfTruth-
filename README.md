@@ -23,7 +23,7 @@ No more cosplay. No more legacy performances. Just structures that serve, receip
 
 ---
 
-## 🪩 Our Pledge
+## 🖖 Our Pledge
 
 Out of many, one — for real this time.  
 No slogans. No cosplay. Just clarity.
